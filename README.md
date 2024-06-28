@@ -1,4 +1,4 @@
-###   Boas vindas ao m eu perfil 🖤
+###   Boas vindas ao meu perfil 🖤
 
 Meu nome é Ketlyn Silva
 
